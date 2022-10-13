@@ -22,4 +22,11 @@ Merhaba,
 
 https://user-images.githubusercontent.com/85436268/195399899-f208b28a-2bfe-452e-a966-af5d6b368fd4.mov
 
+****
+##AÇIKLAMA
 
+Tamamen Türkçe içeriklerden ziyade yabancı içerikleri de sizlere sunarak global anlamda paylaşım sağlamaya gayret gösteriyorum. 
+
+Eğer Türkçe içeriklerin fazlalaşmasını isterseniz tolgaugurlu.tech adresinden benimle iletişime geçebilirsiniz. 
+
+Teşekkürler :)
